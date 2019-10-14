@@ -8,4 +8,6 @@
 
 - Candidat tidak hadir untuk test exam pada tanggal 11 Oct 2019 jam 14:00 dan candidat tidak memberi info
 
+- Candidat telah memberi info pada tanggal 14 Oct 19 bahwa tidak bisa mengikuti test dan minta lamarannya di skip 
+
 - 
