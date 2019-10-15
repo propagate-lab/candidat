@@ -6,4 +6,6 @@
 
 - IDR 5.000.000,-
 
+- Candidat tidak hadir untuk test exam pada tanggal 15 Oct 2019 jam 10:00 dan tidak memberi info
+
 - 
