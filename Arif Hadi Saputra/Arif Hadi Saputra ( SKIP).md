@@ -8,6 +8,6 @@
 
 - Candidat tidak hadir untuk test exam pada tanggal 10 Oct 2019 jam 13:00 karna ada hal lain yang tidak bisa di tinggalkan
 
-- Candidat telah memberi info pada tanggal 14 Oct 19 bahwa lamarannya minta di skip karna masih bekerja
+- Candidat telah memberi info pada tanggal 14 Oct 2019 bahwa lamarannya minta di skip karna masih bekerja
 
 - 
