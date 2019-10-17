@@ -6,4 +6,5 @@
 
 - IDR 3.800.000,-
 
--
+- Candidat tidak hadir untyk test exam pada tanggal 12O Oct 2019 jam 09:00 dan tidak memberi info
+
