@@ -6,4 +6,6 @@
 
 - IDR 4.000.000,-
 
--
+- Candidat akan mengikuti test exam pada tanggal 18 Oct 19 jam 14:00
+
+- 
