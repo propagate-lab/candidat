@@ -10,6 +10,6 @@
 
 - Candidat akan mengikuti test exam ulang pada tanggal 18 Oct 19 jam 14:00
 
--Candidat telah memberi info bahwa tidak dapat mengikuti test exam dan minta lamarannya di skip
+- Candidat telah memberi info bahwa tidak dapat mengikuti test exam dan minta lamarannya di skip
 
 - 
