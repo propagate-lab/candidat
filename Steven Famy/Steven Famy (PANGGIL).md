@@ -2,5 +2,7 @@
 
 - 0812 853 3836
 
+- steve.mailme@gmail.com
+
 - IDR 8.000.000,-
 
