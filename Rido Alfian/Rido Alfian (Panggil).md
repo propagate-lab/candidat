@@ -6,4 +6,6 @@
 
 - IDR 3.000.000,-
 
+- candidat memberi info pada tanggal 14 Nov 2019 jam 13:00 bahwa tidak dapat mengikutin test exam di karenakan sudah di terima               di perusahaan baru
+
 - 
