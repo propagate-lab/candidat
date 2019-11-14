@@ -6,4 +6,6 @@
 
 - IDR 3.000.000,-
 
+- Candidat sudah kirim portfolio pada tanggal 14 Nov 2019 jam 09:15
+
 - 
