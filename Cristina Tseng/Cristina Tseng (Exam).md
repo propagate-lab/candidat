@@ -8,4 +8,6 @@
 
 - Candidat telah hadir untuk mengikuti test exam pada tanggal 14 Nov 2019 jam 11:00 
 
+- candidat akan mengikuti test ke 2 pada tanggal 19 Nov 2019 jam 10:00
+
 - 
