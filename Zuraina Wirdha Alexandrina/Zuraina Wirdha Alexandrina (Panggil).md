@@ -6,4 +6,6 @@
 
 - IDR 4.000.000,-
 
+- Candidat tidak hadir pada tanggal 18 Nov 2019 jam 10:00 dan tidak memberi info
+
 - 
