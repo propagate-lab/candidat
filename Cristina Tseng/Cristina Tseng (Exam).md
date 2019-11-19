@@ -10,4 +10,6 @@
 
 - candidat akan mengikuti test ke 2 pada tanggal 19 Nov 2019 jam 10:00
 
+- candidat tidak hadir untuk mengikuti test exam ke:2 pada tanggal 19 Nov 2019 jam 10:00 dan tidak memberi info
+
 - 
