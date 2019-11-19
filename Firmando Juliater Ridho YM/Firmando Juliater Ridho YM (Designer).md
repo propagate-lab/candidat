@@ -6,4 +6,6 @@
 
 - IDR 4.000.000,-
 
+- candidat telah mengirim portfoli pada tanggal 15 Nov 2019
+
 - 
