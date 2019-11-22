@@ -8,4 +8,6 @@
 
 - Candidat tidak hadir untuk test exam pada tanggal 15 Oct 2019 jam 10:00 dan tidak memberi info
 
+- candidat melamar kembali di jobstreet dan akan mengikuti test exam pada tanggal 23 Nov 2019 jam 09:00
+
 - 
