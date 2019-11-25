@@ -6,4 +6,6 @@
 
 - IDR 6.000.000,-
 
+- Candidat telah hadir pada tanggal 25 Nov 2019 jam 09:00  untuk melaksanakn test exam
+
 - 
