@@ -6,4 +6,7 @@
 
 - IDR 7.000.000,-
 
+- candidat telah hadir pada tanggal 04 Dec 2019 jam 10:00 untuk melaksanakan test exam
+
 - 
+
