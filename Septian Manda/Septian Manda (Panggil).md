@@ -6,4 +6,6 @@
 
 - IDR 3.806.358,-
 
+- Candidat tidak hadir pada tanggal 06 Dec 2019 jam 14:00 untuk melaksanakan test exam.
+
 - 
