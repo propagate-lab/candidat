@@ -6,3 +6,6 @@
 
 - IDR 4.000.000,-
 
+- Candidat telah hadir untuk melaksanakan test exampada tanggal 10 Januari 2020 jam 14:00
+
+- 
