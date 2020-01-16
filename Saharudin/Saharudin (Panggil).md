@@ -6,4 +6,6 @@
 
 - IDR 8.000.000,-
 
+- Candidat tidak hadir pada tanggal 11 Januari 2020 jam 10:00 untuk melaksanakan test exam dan tidak memberi informasi
+
 - 
