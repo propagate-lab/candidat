@@ -6,6 +6,6 @@
 
 - IDR 5.000.000,-
 
-- Candidat tidak hadir pada tanggal 05 Feb 2020 jam 13:00 untuk melaksanakan test exam dan tidak memberi info
+- Candidat tidak hadir pada tanggal 05 Feb 2020 jam 13:00 untuk melaksanakan test exam dan minta di skip karna masih bekerja do tempat lama
 
 - 
