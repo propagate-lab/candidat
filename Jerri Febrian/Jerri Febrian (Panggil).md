@@ -6,6 +6,6 @@
 
 - IDR 6.000.000,-
 
-- Candidat telah hadir pada tanggal 06 Feb 2020 jam 10:00 untuk melaksanakan test exam
+- Candidat telah hadir pada tanggal 06 Feb 2020 jam 10:00 dan telah melaksanakan test exam
 
 - 
