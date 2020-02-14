@@ -6,4 +6,6 @@
 
 - IDR 4.100.000,-
 
+- Candidat telah hadir pada tanggal 14 Feb 2020 jam 14:00 Dan telah melaksanakan test exam
+
 - 
