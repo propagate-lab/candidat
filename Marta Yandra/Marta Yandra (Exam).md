@@ -6,4 +6,6 @@
 
 - IDR 4.000.000,-
 
+- Candidat telah hadir pada tanggal 23 Maret 2020 jam 10:00 dan telah melaksanakan test exam
+
 - 
