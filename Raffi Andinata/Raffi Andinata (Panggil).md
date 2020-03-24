@@ -6,4 +6,6 @@
 
 - IDR 4.000.000,-
 
+- Candidat tidak hadir pada tanggal 24 Maret 2020 jam 10:00 untuk melaksanakan test exam dan tidak memberi info
+
 - 
